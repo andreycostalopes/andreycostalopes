@@ -27,4 +27,4 @@ Aqui compartilho **projetos, códigos e ferramentas** aplicados à pesquisa, ens
 ---
 
 ✉️ Entre em contato: [andrey@unifap.br]  
-🌐 LinkedIn: [linkedin.com/in/seu-perfil](https://linkedin.com/in/seu-perfil)  
+🌐 LinkedIn: [linkedin.com/in/andrey-lopes-249718160]([https://linkedin.com/in/seu-perfil](https://br.linkedin.com/in/andrey-lopes-249718160))  
